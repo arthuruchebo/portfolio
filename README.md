@@ -1,4 +1,4 @@
-# 📄 Resume
+# 📄 Arthur Nweke-Uchebo
 
 📍 **London, UK** | 📧 **arthuruchebo2@gmail.com** | [LinkedIn](linkedin.com/in/arthuruchebo) | [GitHub](github.com/arthuruchebo)
 
